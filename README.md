@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+prolly gonna make this into a nomination account (?) MAYBE tho I'll write in the readme if I made my decision or not
 <!--
 **OHBUNNYBUNNY1/OHBUNNYBUNNY1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
