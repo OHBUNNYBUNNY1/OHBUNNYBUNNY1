@@ -1,5 +1,6 @@
-## Hi there 👋
-prolly gonna make this into a nomination account (?) MAYBE tho I'll write in the readme if I made my decision or not
+## Hi there!11!
+HII HII HELLOO ok so INT with me when my friends aren't here,
+banned (FALSE BANNED) from pt for 3 years *cries*
 <!--
 **OHBUNNYBUNNY1/OHBUNNYBUNNY1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
